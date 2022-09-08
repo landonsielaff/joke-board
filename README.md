@@ -1,1 +1,3 @@
-# collaborative-story
+# ECNS 491/560 Joke Board
+
+What's a pirate's favorite data analysis platform? R....
