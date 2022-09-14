@@ -12,5 +12,6 @@ What did one pickle say to the other? Dill with it
 
 You might be an economist if you divide your relatives into two columns — assets and liabilities.
 
-What do you call an alligator detective?   An Investi-gator
+How do you make an egg roll? You push it
 
+What do you call an alligator detective?   An Investi-gator
