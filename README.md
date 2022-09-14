@@ -12,3 +12,4 @@ What did one pickle say to the other? Dill with it
 
 You might be an economist if you divide your relatives into two columns — assets and liabilities.
 
+How do you make an egg roll? You push it.
