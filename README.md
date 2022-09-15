@@ -19,3 +19,5 @@ What do you call an alligator detective?   An Investi-gator
 What's a pirate's favorite letter? C...
 
 What is a computer's favorite snack? Computer chips
+
+Why did the chicken cross the road? to get to the other side
