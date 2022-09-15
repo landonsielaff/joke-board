@@ -17,3 +17,5 @@ How do you make an egg roll? You push it
 What do you call an alligator detective?   An Investi-gator
 
 What's a pirate's favorite letter? C...
+
+What is a computer's favorite snack? Computer chips
