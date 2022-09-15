@@ -15,3 +15,5 @@ You might be an economist if you divide your relatives into two columns — asse
 How do you make an egg roll? You push it
 
 What do you call an alligator detective?   An Investi-gator
+
+What is a computer's favorite snack? Computer chips
